@@ -1,4 +1,7 @@
-راز تی‌تاsalam sooosis
+راز تی‌تا
+edit from server to sooooooosis
+
+salam sooosis
 ============
 bye bye soosis
 dobare salam soosis
