@@ -1,4 +1,9 @@
 راز تی‌تا
+<<<<<<< HEAD
+=======
+edit from server to 
+
+>>>>>>> b959ceadbaa8c2aab8aa0695c2b03afd343469ee
 salam sooosis
 ============
 bye bye soosis
