@@ -1,5 +1,5 @@
 راز تی‌تا
-edit from server to sooooooosis
+edit from server to 
 
 salam sooosis
 ============
